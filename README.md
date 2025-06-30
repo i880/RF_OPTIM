@@ -243,7 +243,7 @@ This project is licensed under the Apache License 2.0 - see the [LICENSE](LICENS
 
 For questions, issues, or feature requests:
 - Open an issue on GitHub
-- Contact: [Your contact information]
+- Contact: +212681949525  whatsapp or phone 
 
 ---
 
